@@ -38,3 +38,10 @@ Truck
 
 # OUTPUT
 
+![Image](https://github.com/user-attachments/assets/6e02f07f-210a-4856-b0b0-a1d218cfa170)
+
+![Image](https://github.com/user-attachments/assets/4db46f9b-00f2-407c-aeb3-ebe24ecb463b)
+
+![Image](https://github.com/user-attachments/assets/c9f97d24-7ddd-4005-b6ad-43c7f2c824d9)
+
+![Image](https://github.com/user-attachments/assets/fc275347-5151-4498-a0df-c80bec2007b1)
